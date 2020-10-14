@@ -1,7 +1,7 @@
 About Me
 
-Spencer Curtis (again)
+Marc Jacques
 
-Favorite Color: Blue
+Favorite Color: Red
 
-Favorite Food: Empanadas
+Favorite Food: I love food
